@@ -5,6 +5,8 @@ Much simpler than Cars, but Cheaper & easier to get started! You can often get t
 Home: https://www.youtube.com/@SmallEngineMechanic
 - https://youtu.be/CwG0U3SZzvM 
 - https://youtu.be/jrDmWo9bVwc
+
+## Best Guide!: How to Buy a Generator, What to Look For:
 - https://youtu.be/5jDMLS1G5n4
 
 # Tool
