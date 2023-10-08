@@ -6,8 +6,8 @@ Home: https://www.youtube.com/@SmallEngineMechanic
 - https://youtu.be/CwG0U3SZzvM 
 - https://youtu.be/jrDmWo9bVwc
 
-## Best Guide!: How to Buy a Generator, What to Look For:
-- https://youtu.be/5jDMLS1G5n4
+## Top.Favorite: Generator Buying Guide: What to Look For!
+- [1953 Onan Generator Repair and Generator Buying Advice](https://youtu.be/5jDMLS1G5n4)
 
 # Tool
 Save your Back! Get these tools to make it easy & safe to Load & unload.
