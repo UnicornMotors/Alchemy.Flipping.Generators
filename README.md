@@ -7,10 +7,11 @@ Home: https://www.youtube.com/@SmallEngineMechanic
 - https://youtu.be/jrDmWo9bVwc
 
 # Tool
-Car Hitch Cargo Carrier
-https://www.harborfreight.com/500-lb-capacity-deluxe-cargo-carrier-66983.html
-- for Small Generators!
+## Car Hitch Cargo Carrier
+for Small Generators!
+- https://www.harborfreight.com/500-lb-capacity-deluxe-cargo-carrier-66983.html
 
-Truck Bed Crane
-https://www.harborfreight.com/12-ton-capacity-pickup-truck-bed-crane-with-hand-winch-61522.html?_br_psugg_q=truck+bed+cranes
-- for Heavy Generators
+## Truck Bed Crane
+for Heavy Generators
+- https://www.harborfreight.com/12-ton-capacity-pickup-truck-bed-crane-with-hand-winch-61522.html
+- https://www.harborfreight.com/12-ton-capacity-pickup-truck-bed-crane-60732.html
